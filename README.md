@@ -1,5 +1,5 @@
 oi, sou o luiz eduardo;
 
 gosto de estudar: mentira kkk
- Cancel
-Footer
+
+procuro namorada se tiverem interssada pega meu zap
