@@ -1,7 +1,11 @@
-oi, sou o luiz eduardo;
+oi, sou o luiz eduardo;)
 
-gosto de estudar: mentira kkk
+gosto de estudar!
 
-procuro namorada se tiverem interssada pega meu zap
+tenho 15 anos 
 
-5542988141533
+sou trabalhador!  
+
+meu ista @luiz_eduardogb
+
+meu facebook luiz eduardo
